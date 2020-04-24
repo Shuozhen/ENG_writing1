@@ -1,4 +1,4 @@
-What fuck!
+What the fxxk!
 
 * I still cannot use github! Goddish! *
 
